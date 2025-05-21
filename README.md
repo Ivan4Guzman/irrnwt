@@ -1,2 +1,1 @@
-# irrnwt
 Tredenex Vision AI Descripción 2025 – Lo que nadie te cuenta!
